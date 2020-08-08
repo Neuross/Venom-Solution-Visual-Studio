@@ -8,3 +8,9 @@ For those who want to see the source for trojans and ip grabbers and shit.
 Vermillion Thread:https://v3rmillion.net/showthread.php?tid=1035603#dislikepid7301288
 
 Its a exploit thats 100% api and dll based.
+
+This source was leaked on 8/7/2020, its the newest version i will update it everytime they make a new one.
+
+
+Enjoy
+
