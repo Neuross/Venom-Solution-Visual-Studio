@@ -34,6 +34,13 @@ My Response: STFU idiots, its nowhere near that.
 4. THE UI LOOKS COOL
 My Response: Looks shit tbh.
 
+
+https://github.com/Venom-Softworks-LLC/Release
+Source of that^^
+
+
+Fuck off Venom Fanboys
+
 the fucking name is from a fucking movie/comic series.
 Fuck off SympactDev
 
