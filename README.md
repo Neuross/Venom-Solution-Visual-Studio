@@ -12,5 +12,14 @@ Its a exploit thats 100% api and dll based.
 This source was leaked on 8/7/2020, its the newest version i will update it everytime they make a new one.
 
 
+
+please dm me on discord if u would like it taken down: SinisterNerous#6726
+
+
+
+
+
+
+
 Enjoy
 
