@@ -23,3 +23,17 @@ please dm me on discord if u would like it taken down: SinisterNerous#6726
 
 Enjoy
 
+False claims of the venom exploit(The devs claim):
+
+1. ITS THE OLD SOURCE
+My Response: Shut up devs its the new source and plus i can crack a new source if u make a new one
+2. ITS The best exploit
+My Response: Shut up 10 year old retart its nowhere near sirhut let alone synapse x
+3. The world's highest precision Lua Executer, the most stable executing.
+My Response: STFU idiots, its nowhere near that.
+4. THE UI LOOKS COOL
+My Response: Looks shit tbh.
+
+
+
+
